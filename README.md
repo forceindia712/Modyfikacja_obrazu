@@ -1,0 +1,1 @@
+# Modyfikacja_obrazu
